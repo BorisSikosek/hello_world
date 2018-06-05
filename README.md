@@ -1,2 +1,1 @@
-# hello_world
-A place for all the mind storms
+My name i Boris, and i hope to learn aloat and help as well!
